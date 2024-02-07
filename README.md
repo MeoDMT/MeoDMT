@@ -7,7 +7,7 @@
 <!---
 MeoDMT/MeoDMT is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
-💕Currently looking for my Ninja, you know the one I'm going for the big score with?💕
+💕Currently looking for my Cyber-Witch Porn-star Wife, you know the one?💕
 Anywayz, find me in Denver, Winter Park, Seattle, Star Base, etc. #250out
 
 --->
