@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MeoDMT
 - 👀 I’m interested in Ai Art and Web Design, Corporate Cyber Security Workflows
-- 🌱 I’m currently learning Bachelor of Science, Cyber Security
+- 🌱 I’m currently learning Bachelor of Science, Cinematograhy (CyberDefence)
 - 💞️ I’m looking to collaborate on anything haveing to do with EUFI boot tools
 - 📫 How to reach me @Sic_sigma on X
 - 😈 I am also a High Priest in 29Â, so we could always meet there 🪰🪰
