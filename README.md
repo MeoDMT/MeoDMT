@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @MeoDMT
-- 💖 I'm currently looking for a Woman that is a Geek like me to marry! 
 - 🎶 I once played a 15 minute set with deadmau5, helmet and everything! {November 5, 2021}
 - 👀 I’m interested in Ai Art and Web Design, Corporate Cyber Security Workflows
 - 🌱 I’m currently learning Bachelor of Science, Cyber Security (Cinematography)
